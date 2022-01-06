@@ -1,1 +1,1 @@
-# Increased-dry-eye-disease-inducing-T17-cells-in-the-RXR-mutant-mouse-
+# Reduced RXRa signaling increases dry eye disease inducing gdT17 cells in the conjunctiva
